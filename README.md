@@ -1,0 +1,2 @@
+# GROUP_5_Machine_Learning_and_Data_analytics_Project_FOR_PRESENTATION
+GROUP_5_Machine_Learning_and_Data_analytics_Project_FOR_PRESENTATION in training given and sponsored by AFRITEC
